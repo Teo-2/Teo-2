@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on flexing sum cash
 - 📫 How to reach me call Diddy
 - 😄 Pronouns: Cash/Money
-- ⚡ Fun fact: 💰
+- ⚡ Fun fact: 💰 ya heaaard
 
 
 
